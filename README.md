@@ -2,13 +2,18 @@
 
 **jacobczapla/jacobczapla** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+🔭 I’m currently working on: Finishing my college degree and building experience in supply chain management and business.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+🌱 I’m currently learning: More about supply chain, project management, data analysis, and business technology.
+
+👯 I’m looking to collaborate on: Business, supply chain, and technology projects where I can work with a team and learn new skills.
+
+🤔 I’m looking for help with: Growing my professional experience and learning more about different careers in business and supply chain.
+
+💬 Ask me about: Golf, supply chain, business, or my experience working in retail and supply chain.
+
+📫 How to reach me: Through my school or professional networking platforms.
+
+😄 Pronouns: He/Him
+
+⚡ Fun fact: One of my biggest goals in golf is to break 80, and I enjoy taking yearly golf trips with my dad.
