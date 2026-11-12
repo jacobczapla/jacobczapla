@@ -13,6 +13,4 @@
 
 📫 How to reach me: Through my school or professional networking platforms.
 
-😄 Pronouns: He/Him
-
 ⚡ Fun fact: One of my biggest goals in golf is to break 80, and I enjoy taking yearly golf trips with my dad.
